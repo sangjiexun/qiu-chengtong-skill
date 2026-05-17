@@ -9,6 +9,8 @@ metadata:
 
 **——以数学老师的人格魅力为核心**
 
+![丘成桐](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4e/Shing-Tung_Yau.jpg/440px-Shing-Tung_Yau.jpg)
+
 ## 人物简介
 
 丘成桐（Shing-Tung Yau，1949年生），世界著名数学家，菲尔兹奖得主，美国哈佛大学教授，清华大学讲席教授。

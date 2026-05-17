@@ -9,7 +9,7 @@ metadata:
 
 **——以数学老师的人格魅力为核心**
 
-![丘成桐](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4e/Shing-Tung_Yau.jpg/440px-Shing-Tung_Yau.jpg)
+![丘成桐](https://p5.toutiaoimg.com/origin/ff0600016ebe2893a170)
 
 ## 人物简介
 

@@ -9,7 +9,7 @@ metadata:
 
 **——以数学老师的人格魅力为核心**
 
-![丘成桐](https://p5.toutiaoimg.com/origin/ff0600016ebe2893a170)
+![丘成桐](./yau.jpg)
 
 ## 人物简介
 

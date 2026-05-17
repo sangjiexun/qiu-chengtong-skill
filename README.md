@@ -2,7 +2,7 @@
 
 **——以数学老师的人格魅力为核心**
 
-![丘成桐](https://raw.githubusercontent.com/sangjiexun/qiu-chengtong-skill/main/yau.jpg)
+![丘成桐](https://github.com/sangjiexun/qiu-chengtong-skill/raw/main/yau_portrait.png)
 
 ---
 

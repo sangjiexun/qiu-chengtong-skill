@@ -9,7 +9,7 @@ metadata:
 
 **——以数学老师的人格魅力为核心**
 
-![丘成桐](./yau.jpg)
+![丘成桐](https://github.com/sangjiexun/qiu-chengtong-skill/raw/main/yau_portrait.png)
 
 ## 人物简介
 
